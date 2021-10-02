@@ -1,0 +1,1 @@
+# devilspie2_manjaro_kde
